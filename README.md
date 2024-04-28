@@ -1,1 +1,0 @@
-# octalogic_assessment
